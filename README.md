@@ -1,2 +1,6 @@
-# rahinbow-in-the-dark
-#different artificial intelligence
+<div align="center">
+
+## <img src="https://i.ibb.co/ZRhzpKXx/githubjj.png"/>
+
+
+**🤠**
